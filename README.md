@@ -1,0 +1,2 @@
+# kryptomeny
+Investovanie do budúcnosti.
